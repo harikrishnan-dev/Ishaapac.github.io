@@ -1,4 +1,4 @@
-## Welcome to Isha Apac
+## Isha Apac
 
 - Learn Yoga Namaskar: [iyg.to/lyn](iyg.to/lyn)
 - Learn Upa Yoga: [iyg.to/luy](iyg.to/luy)
@@ -15,7 +15,10 @@
   - MY +60 11-3727 4191
 
 ### Isha Centers Apac
-  - SG[https://ishayoga.sg/](https://ishayoga.sg/)
-  - MY[https://ishayoga.sg/](https://ishayoga.sg/)
-  - HK[https://ishayoga.hk/](https://ishayoga.hk/)
+  - [SG](https://ishayoga.sg/)
+  - [MY](https://ishayoga.sg/)
+  - [HK](https://ishayoga.hk/)
  
+### Address
+
+### Registration links
